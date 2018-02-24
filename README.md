@@ -5,4 +5,7 @@
 샘플 파일 구글드라이브에 링크 걸어놨습니다.   
   
 키넥트 뎁스 영상1 https://drive.google.com/open?id=0B_uj4YhgIaVEVk5icHdJZThvWlk  
-키넥트 뎁스 영상2 https://drive.google.com/open?id=0B_uj4YhgIaVEaENqWUlaNm5IZHc  
+키넥트 뎁스 영상2 https://drive.google.com/open?id=0B_uj4YhgIaVEaENqWUlaNm5IZHc    
+
+제작과정및 작품 영상 http://coso.tistory.com/category/Artwork/Black%20amoeba
+
